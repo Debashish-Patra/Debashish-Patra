@@ -1,6 +1,6 @@
 # Hi, I'm Debashish Patra 👋
 
-Strategy & Growth | Customer Experience | AI Product Strategy | Digital Transformation
+AI-Powered Strategy & Growth Transformation, Customer Experience & Product Leader
 
 I am a business and product leader with 14+ years of experience building customer-centric growth systems across Financial Services, Loyalty, Travel & Hospitality, Retail, Consumer Goods, and Digital Platforms.
 
