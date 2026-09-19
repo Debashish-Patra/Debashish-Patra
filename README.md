@@ -6,7 +6,7 @@ I am a business and product leader with 14+ years of experience building custome
 
 My work sits at the intersection of:
 
-• AI & Agentic Systems
+• AI Transformation
 • Customer Experience (CX)
 • Product Management
 • Growth & Marketing Technology
